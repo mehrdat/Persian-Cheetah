@@ -8,11 +8,13 @@ The **Persian or Asiatic cheetah** (*Acinonyx jubatus venaticus*) is a criticall
 
 
 ## 📸 Images
+![Cheetah](/images/piruz.webp)
 !Pirouz – The Symbol of Hope  
 *Pirouz, the first captive-born Asiatic cheetah cub in Iran (2022).*
 
-!Pirouz – In Captivity  
-*Pirouz during his care in Tehran before his tragic death in 2023.*
+![Cheetah](/images/mahshad.png)
+!Mahshad –   
+*She has become pregnant a few times and is considered one of the important hopes for cheetah conservation.*
 
 
 ---
